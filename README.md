@@ -1,3 +1,5 @@
+![Picture2](https://github.com/adriana-libanio/adriana-libanio/assets/162932884/a760edfe-775a-42f6-adf8-622cbed3d3c2)
+
 <h1 align="center">Hi 👋, I'm Adriana Libânio</h1>
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=adriana-libanio&label=Profile%20views&color=0e75b6&style=flat" alt="adriana-libanio" /> </p>
 
