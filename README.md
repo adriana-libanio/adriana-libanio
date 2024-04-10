@@ -1,4 +1,4 @@
-![Picture4](https://github.com/adriana-libanio/adriana-libanio/assets/162932884/6447d70a-e4b2-42ad-8ca9-1272ba4ac3d5)
+![Picture1](https://github.com/adriana-libanio/adriana-libanio/assets/162932884/89dcc942-e06f-4593-bf16-43a7c2359f5e)
 
 
 <h1 align="center">Hi 👋, I'm Adriana Libânio</h1>
